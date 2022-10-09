@@ -6,4 +6,4 @@
 * 倍攻(自定义伤害倍数)
 
 ## 预览
-![image](https://ads-video-qn.xiaohongshu.com/recruit/066f4b7b67a0f0d105ee5b9030ce6f014b6fd9eb)
+![image](https://ads-video-qn.xiaohongshu.com/recruit/b7592b2cc82788ec3f59310a9c2b4ee783880638)
