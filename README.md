@@ -8,3 +8,6 @@
 
 ## 预览
 ![image](https://ads-video-qn.xiaohongshu.com/recruit/b7592b2cc82788ec3f59310a9c2b4ee783880638)
+
+## 反馈
+Mod如果失效可以到TG群反馈 https://t.me/FlxSNXMod
